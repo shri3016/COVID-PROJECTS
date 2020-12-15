@@ -1,4 +1,4 @@
-# COVID-PROJECTS# COVID-PROJECTS
+#  COVID-PROJECTS
 **"THE NEW NORMAL"**
 ![image alt text](https://blogsmedia.lse.ac.uk/blogs.dir/35/files/2020/05/social-distancing-5132570_1280.png)
 
